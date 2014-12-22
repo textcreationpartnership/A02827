@@ -35,474 +35,74 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Apollo shrouing composed for the schollars of the free-schoole of Hadleigh in Suffolke. And acted by
+
+1. To my singular honest Stationer, Mr. Robert Mylbourne, at his shop in decimo sexto, by the south doore of Pauls.
+
+1. The aforesaid Stationers answer.
+
 #####Body#####
-The Introduction.PRologus a yong Sch•…llarIoseph Beamont.La•… a woman spectator.Nicholas Coleman.Dra
-    _ Actus Primus. Scena prima.
 
-    _ Actus primus. Scena secunda.
+1. Apollo Shrouing.
+The Introduction.PRologus a yong Sch•…llarIoseph Beamont.La•… a woman spectator.Nicholas Coleman.DraPrologus.SI quisquam est, qui placere se stu•…at bonis Quam plurim•…s, 〈◊〉 mini•…e multos laedere, IActus Primus. Scena prima.Phil.Ecce vigil nitido 〈◊〉 ab ortuPurpureas aurora fores, et plena rosarum
+      * Actus Primus. Scena prima.
 
-    _ Actus primus. Scena tertia.
+      * Actus primus. Scena secunda.
 
-    _ Actus primus. Scena quarta.
+      * Actus primus. Scena tertia.
 
-    _ Actus primus. Scena quinta,
+      * Actus primus. Scena quarta.
 
-    _ Actus secundus. Scena prima.
-
-    _ Actus secundus. Scene secunda.
-
-    _ Actus secundus. Scena tertia.
-
-    _ Actus secundus. Scen•… quarta.
-
-    _ Actus secundus. Scena quinta.
-
-    _ Actus secundus. Scena sexta.
-
-    _ Actus tertius. Scena prima.
-
-    _ Actus tertius Scena secunda.
-
-    _ Actus tertius. Scena tertia.
-
-    _ Actus tertius. Scena quarta.
-
-    _ Actus tertius. Scena quinta.
-
-    _ Actus tertius. Scena sexta.
-
-    _ Actus quartus. Scena prima.
-
-    _ Actus quartus. Scena secunda.
-
-    _ Actus quartus. Scena tertia.
-
-    _ Actus quartus. Scena quarta.
-
-    _ Actus quartus. Scena quinta.
-
-    _ Actus quartus. Scena sexta.
-
-    _ Actus quintus. Scena prima.
-
-    _ Actus quintus. Scena secunda.
-
-    _ Actus quintus. Scena tertia.
-
-    _ Actus quintus. Scena quarta.
-
-    _ Actus quintus. Scena quiuta.
-
-    _ Actus quintus. Scena sex•… et vltima.
-Prologus.SI quisquam est, qui placere se stu•…at bonis Quam plurim•…s, 〈◊〉 mini•…e multos laedere, I
-    _ Actus Primus. Scena prima.
-
-    _ Actus primus. Scena secunda.
-
-    _ Actus primus. Scena tertia.
-
-    _ Actus primus. Scena quarta.
-
-    _ Actus primus. Scena quinta,
-
-    _ Actus secundus. Scena prima.
-
-    _ Actus secundus. Scene secunda.
-
-    _ Actus secundus. Scena tertia.
-
-    _ Actus secundus. Scen•… quarta.
-
-    _ Actus secundus. Scena quinta.
-
-    _ Actus secundus. Scena sexta.
-
-    _ Actus tertius. Scena prima.
-
-    _ Actus tertius Scena secunda.
-
-    _ Actus tertius. Scena tertia.
-
-    _ Actus tertius. Scena quarta.
-
-    _ Actus tertius. Scena quinta.
-
-    _ Actus tertius. Scena sexta.
-
-    _ Actus quartus. Scena prima.
-
-    _ Actus quartus. Scena secunda.
-
-    _ Actus quartus. Scena tertia.
-
-    _ Actus quartus. Scena quarta.
-
-    _ Actus quartus. Scena quinta.
-
-    _ Actus quartus. Scena sexta.
-
-    _ Actus quintus. Scena prima.
-
-    _ Actus quintus. Scena secunda.
-
-    _ Actus quintus. Scena tertia.
-
-    _ Actus quintus. Scena quarta.
-
-    _ Actus quintus. Scena quiuta.
-
-    _ Actus quintus. Scena sex•… et vltima.
-Actus Primus. Scena prima.Phil.Ecce vigil nitido 〈◊〉 ab ortuPurpureas aurora fores, et plena rosarum
-    _ Actus Primus. Scena prima.
-
-    _ Actus primus. Scena secunda.
-
-    _ Actus primus. Scena tertia.
-
-    _ Actus primus. Scena quarta.
-
-    _ Actus primus. Scena quinta,
-
-    _ Actus secundus. Scena prima.
-
-    _ Actus secundus. Scene secunda.
-
-    _ Actus secundus. Scena tertia.
-
-    _ Actus secundus. Scen•… quarta.
-
-    _ Actus secundus. Scena quinta.
-
-    _ Actus secundus. Scena sexta.
-
-    _ Actus tertius. Scena prima.
-
-    _ Actus tertius Scena secunda.
-
-    _ Actus tertius. Scena tertia.
-
-    _ Actus tertius. Scena quarta.
-
-    _ Actus tertius. Scena quinta.
-
-    _ Actus tertius. Scena sexta.
-
-    _ Actus quartus. Scena prima.
-
-    _ Actus quartus. Scena secunda.
-
-    _ Actus quartus. Scena tertia.
-
-    _ Actus quartus. Scena quarta.
-
-    _ Actus quartus. Scena quinta.
-
-    _ Actus quartus. Scena sexta.
-
-    _ Actus quintus. Scena prima.
-
-    _ Actus quintus. Scena secunda.
-
-    _ Actus quintus. Scena tertia.
-
-    _ Actus quintus. Scena quarta.
-
-    _ Actus quintus. Scena quiuta.
-
-    _ Actus quintus. Scena sex•… et vltima.
+      * Actus primus. Scena quinta,
 Actus secundus. Scena prima.Compliment, Implement, Nouice.Imp.REnowned Father of fashions, Count of 
-    _ Actus Primus. Scena prima.
+      * Actus secundus. Scena prima.
 
-    _ Actus primus. Scena secunda.
+      * Actus secundus. Scene secunda.
 
-    _ Actus primus. Scena tertia.
+      * Actus secundus. Scena tertia.
 
-    _ Actus primus. Scena quarta.
+      * Actus secundus. Scen•… quarta.
 
-    _ Actus primus. Scena quinta,
+      * Actus secundus. Scena quinta.
 
-    _ Actus secundus. Scena prima.
-
-    _ Actus secundus. Scene secunda.
-
-    _ Actus secundus. Scena tertia.
-
-    _ Actus secundus. Scen•… quarta.
-
-    _ Actus secundus. Scena quinta.
-
-    _ Actus secundus. Scena sexta.
-
-    _ Actus tertius. Scena prima.
-
-    _ Actus tertius Scena secunda.
-
-    _ Actus tertius. Scena tertia.
-
-    _ Actus tertius. Scena quarta.
-
-    _ Actus tertius. Scena quinta.
-
-    _ Actus tertius. Scena sexta.
-
-    _ Actus quartus. Scena prima.
-
-    _ Actus quartus. Scena secunda.
-
-    _ Actus quartus. Scena tertia.
-
-    _ Actus quartus. Scena quarta.
-
-    _ Actus quartus. Scena quinta.
-
-    _ Actus quartus. Scena sexta.
-
-    _ Actus quintus. Scena prima.
-
-    _ Actus quintus. Scena secunda.
-
-    _ Actus quintus. Scena tertia.
-
-    _ Actus quintus. Scena quarta.
-
-    _ Actus quintus. Scena quiuta.
-
-    _ Actus quintus. Scena sex•… et vltima.
+      * Actus secundus. Scena sexta.
 Actus tertius. Scena prima.Mistresse Indulgence Gingle, Iohn Gingle her sonne, Iugge Rubbish her mai
-    _ Actus Primus. Scena prima.
+      * Actus tertius. Scena prima.
 
-    _ Actus primus. Scena secunda.
+      * Actus tertius Scena secunda.
 
-    _ Actus primus. Scena tertia.
+      * Actus tertius. Scena tertia.
 
-    _ Actus primus. Scena quarta.
+      * Actus tertius. Scena quarta.
 
-    _ Actus primus. Scena quinta,
+      * Actus tertius. Scena quinta.
 
-    _ Actus secundus. Scena prima.
-
-    _ Actus secundus. Scene secunda.
-
-    _ Actus secundus. Scena tertia.
-
-    _ Actus secundus. Scen•… quarta.
-
-    _ Actus secundus. Scena quinta.
-
-    _ Actus secundus. Scena sexta.
-
-    _ Actus tertius. Scena prima.
-
-    _ Actus tertius Scena secunda.
-
-    _ Actus tertius. Scena tertia.
-
-    _ Actus tertius. Scena quarta.
-
-    _ Actus tertius. Scena quinta.
-
-    _ Actus tertius. Scena sexta.
-
-    _ Actus quartus. Scena prima.
-
-    _ Actus quartus. Scena secunda.
-
-    _ Actus quartus. Scena tertia.
-
-    _ Actus quartus. Scena quarta.
-
-    _ Actus quartus. Scena quinta.
-
-    _ Actus quartus. Scena sexta.
-
-    _ Actus quintus. Scena prima.
-
-    _ Actus quintus. Scena secunda.
-
-    _ Actus quintus. Scena tertia.
-
-    _ Actus quintus. Scena quarta.
-
-    _ Actus quintus. Scena quiuta.
-
-    _ Actus quintus. Scena sex•… et vltima.
+      * Actus tertius. Scena sexta.
 Actus quartus. Scena prima.Complement. Gingle. Implement.Comp.GEntle sir Gingle, the flowre of my sc
-    _ Actus Primus. Scena prima.
+      * Actus quartus. Scena prima.
 
-    _ Actus primus. Scena secunda.
+      * Actus quartus. Scena secunda.
 
-    _ Actus primus. Scena tertia.
+      * Actus quartus. Scena tertia.
 
-    _ Actus primus. Scena quarta.
+      * Actus quartus. Scena quarta.
 
-    _ Actus primus. Scena quinta,
+      * Actus quartus. Scena quinta.
 
-    _ Actus secundus. Scena prima.
-
-    _ Actus secundus. Scene secunda.
-
-    _ Actus secundus. Scena tertia.
-
-    _ Actus secundus. Scen•… quarta.
-
-    _ Actus secundus. Scena quinta.
-
-    _ Actus secundus. Scena sexta.
-
-    _ Actus tertius. Scena prima.
-
-    _ Actus tertius Scena secunda.
-
-    _ Actus tertius. Scena tertia.
-
-    _ Actus tertius. Scena quarta.
-
-    _ Actus tertius. Scena quinta.
-
-    _ Actus tertius. Scena sexta.
-
-    _ Actus quartus. Scena prima.
-
-    _ Actus quartus. Scena secunda.
-
-    _ Actus quartus. Scena tertia.
-
-    _ Actus quartus. Scena quarta.
-
-    _ Actus quartus. Scena quinta.
-
-    _ Actus quartus. Scena sexta.
-
-    _ Actus quintus. Scena prima.
-
-    _ Actus quintus. Scena secunda.
-
-    _ Actus quintus. Scena tertia.
-
-    _ Actus quintus. Scena quarta.
-
-    _ Actus quintus. Scena quiuta.
-
-    _ Actus quintus. Scena sex•… et vltima.
+      * Actus quartus. Scena sexta.
 Actus quintus. Scena prima.Philoponus. Amphibius.Phil.SEe how thy soule was sna•…'d with sophistry.N
-    _ Actus Primus. Scena prima.
+      * Actus quintus. Scena prima.
 
-    _ Actus primus. Scena secunda.
+      * Actus quintus. Scena secunda.
 
-    _ Actus primus. Scena tertia.
+      * Actus quintus. Scena tertia.
 
-    _ Actus primus. Scena quarta.
+      * Actus quintus. Scena quarta.
 
-    _ Actus primus. Scena quinta,
+      * Actus quintus. Scena quiuta.
 
-    _ Actus secundus. Scena prima.
+      * Actus quintus. Scena sex•… et vltima.
 
-    _ Actus secundus. Scene secunda.
-
-    _ Actus secundus. Scena tertia.
-
-    _ Actus secundus. Scen•… quarta.
-
-    _ Actus secundus. Scena quinta.
-
-    _ Actus secundus. Scena sexta.
-
-    _ Actus tertius. Scena prima.
-
-    _ Actus tertius Scena secunda.
-
-    _ Actus tertius. Scena tertia.
-
-    _ Actus tertius. Scena quarta.
-
-    _ Actus tertius. Scena quinta.
-
-    _ Actus tertius. Scena sexta.
-
-    _ Actus quartus. Scena prima.
-
-    _ Actus quartus. Scena secunda.
-
-    _ Actus quartus. Scena tertia.
-
-    _ Actus quartus. Scena quarta.
-
-    _ Actus quartus. Scena quinta.
-
-    _ Actus quartus. Scena sexta.
-
-    _ Actus quintus. Scena prima.
-
-    _ Actus quintus. Scena secunda.
-
-    _ Actus quintus. Scena tertia.
-
-    _ Actus quintus. Scena quarta.
-
-    _ Actus quintus. Scena quiuta.
-
-    _ Actus quintus. Scena sex•… et vltima.
-
-1. Epilogue.
-
-    _ Actus Primus. Scena prima.
-
-    _ Actus primus. Scena secunda.
-
-    _ Actus primus. Scena tertia.
-
-    _ Actus primus. Scena quarta.
-
-    _ Actus primus. Scena quinta,
-
-    _ Actus secundus. Scena prima.
-
-    _ Actus secundus. Scene secunda.
-
-    _ Actus secundus. Scena tertia.
-
-    _ Actus secundus. Scen•… quarta.
-
-    _ Actus secundus. Scena quinta.
-
-    _ Actus secundus. Scena sexta.
-
-    _ Actus tertius. Scena prima.
-
-    _ Actus tertius Scena secunda.
-
-    _ Actus tertius. Scena tertia.
-
-    _ Actus tertius. Scena quarta.
-
-    _ Actus tertius. Scena quinta.
-
-    _ Actus tertius. Scena sexta.
-
-    _ Actus quartus. Scena prima.
-
-    _ Actus quartus. Scena secunda.
-
-    _ Actus quartus. Scena tertia.
-
-    _ Actus quartus. Scena quarta.
-
-    _ Actus quartus. Scena quinta.
-
-    _ Actus quartus. Scena sexta.
-
-    _ Actus quintus. Scena prima.
-
-    _ Actus quintus. Scena secunda.
-
-    _ Actus quintus. Scena tertia.
-
-    _ Actus quintus. Scena quarta.
-
-    _ Actus quintus. Scena quiuta.
-
-    _ Actus quintus. Scena sex•… et vltima.
+    _ Epilogue.
 
 **Types of content**
 
